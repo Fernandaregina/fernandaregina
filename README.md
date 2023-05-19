@@ -12,6 +12,6 @@
 
 Instagram : @feer.reira
 <br>
-Linkedin : fernandar-ferreira
+Linkedin : fernanda-ferreira
 
 
